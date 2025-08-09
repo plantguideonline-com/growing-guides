@@ -5,6 +5,8 @@ Here we'll be featuring our pdf growing guides from PlantGuideOnline.com. Check 
 
 If you’ve ever wondered *“What plants will grow best where I live?”* 🌻 you’re in the right place. **PlantGuideOnline.com** is a free, easy-to-use gardening tool that helps you discover your **USDA growing zone**, local temperature trends, and a custom list of plants that will thrive in your specific location. Whether you are a brand-new gardener or a seasoned plant lover, this website makes it simple to plan a garden that flourishes.
 
+[Connect w/ Us On LinkedIn](https://www.linkedin.com/company/plantguideonline-com/)
+
 ## Find Your Growing Zone in Seconds
 
 Your first step to gardening success is knowing your **USDA Hardiness Zone**. This zone tells you which plants can survive in your climate year-round. At PlantGuideOnline.com, all you have to do is **type in your town or ZIP code**. In just seconds, you’ll see your growing zone, average high and low temperatures, and frost dates.
